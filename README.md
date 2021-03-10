@@ -1,1 +1,1 @@
-# vikyath.github.com
+# vikyath
