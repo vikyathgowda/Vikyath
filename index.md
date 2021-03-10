@@ -1,5 +1,7 @@
 ## Welcome to my Page
 
-### Will be updating this swction soon.
+### Will be updating this section soon.
+
+
 
 #### Thank you
